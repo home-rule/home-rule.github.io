@@ -1,1 +1,10 @@
-# home-rule.github.io
+# Бесплатный контент
+
+## Таблицы:
+- Что будет в каждом доме: https://t.me/dndhomerule/99
+- Вещи, связанные с промыслами: https://t.me/dndhomerule/102
+
+# Контент на бусти
+
+## Таблицы:
+- Городские и деревенские промыслы: https://boosty.to/homerule/posts/7f967c9b-0d3f-490d-819b-250ef8709bef
